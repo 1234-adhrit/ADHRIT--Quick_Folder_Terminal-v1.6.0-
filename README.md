@@ -1,0 +1,1 @@
+# ADHRIT--Quick_Folder_Terminal-v1.0.0-
